@@ -1,1 +1,1 @@
-# subindic_practice_teacher
+# subindic_practice_ethos_teacher
